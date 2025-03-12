@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Hasan3955 and I'm a Process Engineer
 - 🌱 I’m also a Master student in Information Management at Tilburg University
-- 💞️ I’m looking to collaborate on 
 - 📫 To reach send me a mail: mohammedhasanramadan395@gmail.com
 
 
